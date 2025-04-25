@@ -1,5 +1,6 @@
 <p align="center">Hey gangy heres my links<br>C+H Freely i love them<br>DO NOT Copy or take major inspo, though minor inspo is alr<br>Im currently look for friends atm so if you aren't on any of my dni lists i'd like to be friends<br> i don''t mind ships when C+H but i won't interact much with them <br>
-  <strong>IM A MINOR</strong> <br>
+  i don't like roleplays, rolesplays dni pls. <br>
+  <strong>IM A MINOR, 17+ DNI!!!!</strong> <br>
 <a href="https://aboutmorgio.straw.page/">Strawpage (>﹏<)</a>
   <a href="https://en.pronouns.page/@Morgio">Pronouns (≧ヮ≦)</a>
     <a href="https://morgio.atabook.org/">Ata book (;´□｀)/</a>
