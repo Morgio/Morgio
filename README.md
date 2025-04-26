@@ -2,7 +2,6 @@
   i don't like roleplays, rolesplays dni pls. <br>
   <strong>IM A MINOR, 17+ DNI!!!!</strong> <br>
 <a href="https://aboutmorgio.straw.page/">Strawpage (>﹏<)</a>
-  <a href="https://en.pronouns.page/@Morgio">Pronouns (≧ヮ≦)</a>
     <a href="https://morgio.atabook.org/">Ata book (;´□｀)/</a>
 </p>
 
