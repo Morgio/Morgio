@@ -3,6 +3,7 @@
   <strong>IM A MINOR, 17+ DNI!!!!</strong> <br> note for draw strawpage: if i didnt post your art its most likely because the gimmicks arent working on the actual website!! Though i've been working on keeping up! (starting on may 6th 2025) <br>
 <a href="https://aboutmorgio.straw.page/">Strawpage (>﹏<)</a>
     <a href="https://morgio.atabook.org/">Ata book (;´□｀)/</a>
+  <a href="https://morgiosbasics.carrd.co/">Card (..◜ᴗ◝..)</a>
 </p>
 
 ###
