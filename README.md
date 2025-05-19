@@ -4,7 +4,8 @@
 <a href="https://aboutmorgio.straw.page/">Strawpage (>﹏<)</a>
     <a href="https://morgio.atabook.org/">Ata book (;´□｀)/</a>
   <a href="https://morgiosbasics.carrd.co/">Card (..◜ᴗ◝..)</a>
-  <a href="https://neospring.org/@morgio?page=1">Neospring (ﾉ´ヮ´)ﾉ</a>
+  <a href="https://neospring.org/@morgio?page=1">Neospring (ﾉ´ヮ´)ﾉ</a><br>
+  Check these out ^_^ more perferably my card and strawpage b4 u int 
 </p>
 
 ###
