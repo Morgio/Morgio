@@ -13,7 +13,7 @@
 
 ###
 
-<p align="center"><a href="https://aboutmorgio.straw.page/">Strawpage (>﹏<)</a>
+<p align="center"><a href="morgio.straw.page">Strawpage (>﹏<)</a>
     <a href="https://morgio.atabook.org/">Ata book (;´□｀)/</a>
   <a href="https://morgiosbasics.carrd.co/">Card (..◜ᴗ◝..)</a>
   <a href="https://neospring.org/@morgio?page=1">Neospring (ﾉ´ヮ´)ﾉ</a></p>
