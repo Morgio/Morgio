@@ -21,4 +21,4 @@
 <p align="center"><a href="https://morgio.straw.page/">Strawpage (>﹏<)</a>
     <a href="https://morgio.atabook.org/">Ata book (;´□｀)/</a>
   <a href="https://morgiosbasics.carrd.co/">Card (..◜ᴗ◝..)</a>
-  <a href="https://tetratto.com/@morgio">Tetratto (^_^)</a>
+
