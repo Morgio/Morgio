@@ -6,7 +6,7 @@
 ###
 
 
-<p align="center">C+H Freely i love them<br>DO NOT Copy or take major inspo, though minor inspo is alr<br>Im currently look for friends atm so if you aren't on any of my dni lists i'd like to be friends<br>i don''t mind ships when C+H but i won't interact much with them<br>i don't like roleplays, rolesplays dni pls.<br>IM A MINOR, 17+ IWC!!!!(im under 16)<br> If you are interested in flavor frenzy come and join my server! https://discord.gg/evQACSpktr
+<p align="center">C+H Freely i love them<br>DO NOT Copy or take major inspo, though minor inspo is alr<br>Im currently look for friends atm so if you aren't on any of my dni lists i'd like to be friends<br>i don''t mind ships when C+H but i won't interact much with them<br>i don't like roleplays, rolesplays dni pls.<br>IM A MINOR, 17+ IWC!!!!(im under 16)
   
 </p><br>
 <div align="center">
