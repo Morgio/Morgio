@@ -1,6 +1,6 @@
 
 <div align="center">
-  <img height="400" src="https://img.playbook.com/56ZKMXgsWqcuUIGciqpv0phInUF04XdJZZoP7L12ZYc/Z3M6Ly9wbGF5Ym9v/ay1hc3NldHMtcHVi/bGljLzIyZTVmN2Ix/LTUyYTItNDk2OS1h/MzM0LTNiOTIzZTcy/ZTU1Mw"  />
+  <img height="400" src="https://img.playbook.com/5eixhg0ceWRBSdnVyAFZrV5zAc8cZg2Q822vTaA6eD8/Z3M6Ly9wbGF5Ym9v/ay1hc3NldHMtcHVi/bGljLzUxMjAxOTk1/LWY4N2UtNDNkZS1h/NGUxLTEwNDk0ZDk5/YjI3MQ"  />
 </div>
 
 ###
