@@ -1,50 +1,33 @@
+<br clear="both">
 
 <div align="center">
-  <img height="400" src="https://img.playbook.com/5eixhg0ceWRBSdnVyAFZrV5zAc8cZg2Q822vTaA6eD8/Z3M6Ly9wbGF5Ym9v/ay1hc3NldHMtcHVi/bGljLzUxMjAxOTk1/LWY4N2UtNDNkZS1h/NGUxLTEwNDk0ZDk5/YjI3MQ"  />
+  <img height="400" src="https://camo.githubusercontent.com/711311ce6ca2d68312a099b477a83530f541b81243ababe0c6a5cc332833de47/68747470733a2f2f696d672e706c6179626f6f6b2e636f6d2f35656978686730636557524253646e567941465a7256357a416338635a67325138323276546141366544382f5a334d364c79397762474635596d39762f6179316863334e6c64484d74634856692f62476c6a4c7a55784d6a41784f546b312f4c5759344e3255744e444e6b5a5331682f4e4755784c5445774e446b305a446b352f596a49334d51"  />
 </div>
 
 ###
 
+<p align="left">C+H Freely idm<br><br>I'm always open 4 new friends pls js read info and ask for req<br><br>I am a minor, under 16, 17+ iwc<br><br>roleplays dni please<br><br>do not copy please (minor inspo idm)</p>
 
-<p align="center">C+H Freely i love them<br>DO NOT Copy or take major inspo, though minor inspo is alr<br>Im currently look for friends atm so if you aren't on any of my dni lists i'd like to be friends<br>i don''t mind ships when C+H but i won't interact much with them<br>i don't like roleplays, rolesplays dni pls.<br>IM A MINOR, 17+ IWC!!!!(im under 16)
-  
-</p><br>
+###
+
 <div align="center">
-
-
-
-<p align="center"><a href="https://morgio.straw.page/">Strawpage (>﹏<)</a>
-    <a href="https://morgio.atabook.org/">Ata book (;´□｀)/</a>
-
-  <img align="left" height="25" src="https://plasticdino.net/blinkie/typoqueen.gif"  />
+  <img src="https://visitor-badge.laobi.icu/badge?page_id=Morgio.Morgio&left_color=black&right_color=darkred&left_text=cool%20people"  />
+</div>
 
 ###
 
-<img align="left" height="25" src="https://64.media.tumblr.com/25e2605619d8e5fe9574b4a8a698bd74/824a8a7fc9ad8c54-f2/s250x400/14c883e4ba64ba97472e0a0a44d283b9b4c666fe.gifv"  />
+<img align="right" height="25" src="https://64.media.tumblr.com/a995968e1b0a942224d69e9cc70950b5/7edbd016635ef3d8-0e/s250x400/6b456339d33d95bcaa06e43581c058f1c8c35ee3.gifv"  />
 
 ###
 
-<img align="left" height="26" src="https://64.media.tumblr.com/44c01d8be819f3a9881aa4ba3a71f6c0/17f7cb44a44c0433-57/s250x400/9638e4fcc21d12980a7ae7a7df15d87b4b88ceae.gifv"  />
+<img align="right" height="25" src="https://64.media.tumblr.com/63b433dfef21799cfd34fef14d9057ba/4fdd7292ae378a58-5a/s250x400/14456df46c24bb45e334031a20743cf351396d42.gifv"  />
 
 ###
 
-<img align="left" height="25" src="https://64.media.tumblr.com/e0a0e011485fa2f9227ebb9c29a72069/01ed5a9e1ad93e26-d0/s250x400/fb555a82a94dc0cd7765e34e68de3f15d5605fc5.gifv"  />
+<img align="right" height="25" src="https://64.media.tumblr.com/03f3108b05829c00fa870d3712cbb6c3/150050ef62aeb4f9-b8/s250x400/e92243b3baa1b7629bc6c01cac92c10b329a96ae.gifv"  />
 
 ###
 
-<img align="right" height="25" src="https://64.media.tumblr.com/74aa3ce6b815fa926bdba8ad695407f8/4847cff950329dce-fb/s250x400/03e8114c5b005e31331be1e37b2e8b11f27af60e.gifv"  />
+<img align="right" height="25" src="https://64.media.tumblr.com/d1a3023bc88c3839cb4221dc1b89882e/858fba5bea03910f-ab/s400x600/08bdceae430016f2140ea5fcfc876483fe8052b5.gifv"  />
 
 ###
-
-<img align="left" height="25" src="https://64.media.tumblr.com/c09f8a60653cb14fc79a0ae5ca9b489c/26d6539201c78072-68/s250x400/3bdd2b83520657d37b44d4a1a71e8af481a8a2a0.gifv"  />
-
-###
-
-<img align="left" height="25" src="https://64.media.tumblr.com/7084b279e8ccdd5f134e06f27032a78b/e2ade10ba0d12280-05/s250x400/59060fa7f6074b7611dfca9e8cef3e5bae3afb26.gifv"  />
-
-###
-
-<img align="right" height="25" src="https://64.media.tumblr.com/ffc32fe8ffe08909969b407106b7a555/858fba5bea03910f-f2/s250x400/1a3f53198b78518539baf63a2bfcbc4ce6a61d43.gifv"  />
-
-###
-
