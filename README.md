@@ -6,7 +6,7 @@
 
 ###
 
-<p align="left">C+H Freely idm<br><br>I'm always open 4 new friends pls js read info and ask for req<br><br>I am a minor, i'm under 16, 17+ iwc<br><br>roleplays dni please<br><br>do not copy please (minor inspo idm)</p>
+<p align="left">C+H Freely idm<br><br>I'm always open 4 new friends pls js read info and ask for req<br><br>I am a minor, i'm under 16, 17+ DNI<br><br>roleplays dni please<br><br>do not copy please (minor inspo idm)</p>
 
 ###
 
