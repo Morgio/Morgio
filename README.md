@@ -6,7 +6,7 @@
 
 ###
 
-<p align="left">C+H Freely idm<br><br>I'm always open 4 new friends pls js read info and ask for req<br><br>I am a minor, i'm under 16, 17+ DNI<br><br>roleplays dni please<br><br>do not copy please (minor inspo idm)<br><br>I follow cool people.... (bmf friend please ur so cool...)<br><br>block me if u want i would prefer if u would block me if u r 18+</p>
+<p align="left">C+H Freely idm<br><br>I'm always open 4 new friends pls js read info and ask for req<br><br>I am a minor, i'm under 16, 17+ DNI<br><br>roleplays dni please<br><br>do not copy please (minor inspo idm)<br><br>I follow cool people.... (bmf friend please ur so cool...)<br><br>block me if u want i would prefer if u would block me if u r 18+ I only block proshippers</p>
 
 ###
 
