@@ -1,33 +1,27 @@
+<div align="center">
+  <img height="75" src="https://64.media.tumblr.com/604225d594721d6a9dde1b83d9dd8fc3/f264b009c928081d-33/s540x810/1907a19a4e2afeb5b272b8c7561417423410ae8f.pnj"  />
+</div>
+
+###
+
+<p align="center">𝘏𝘪 𝘤𝘢𝘭𝘭 𝘮𝘦 𝘔𝘰𝘳𝘨𝘪𝘰 𝘰𝘳 𝘔𝘰𝘳𝘨𝘴 . 𝘚𝘩𝘦/𝘏𝘪𝘮 𝘣𝘶𝘵 𝘴𝘩𝘦/𝘩𝘦𝘳 𝘪𝘴 𝘱𝘳𝘦𝘧𝘦𝘳𝘦𝘥 𝘣𝘶𝘵 𝘐 𝘥𝘰𝘯'𝘵 𝘤𝘢𝘳𝘦 𝘸𝘩𝘢𝘵 𝘺𝘰𝘶 𝘶𝘴𝘦<br><br>𝘚𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦 . 𝘈𝘵𝘢𝘣𝘰𝘰𝘬 . 𝘗𝘳𝘰𝘯𝘰𝘶𝘯𝘴<br><br>𝘐 𝘥𝘰𝘯'𝘵 𝘩𝘪𝘥𝘦 𝘱𝘦𝘰𝘱𝘭𝘦 𝘱𝘦𝘳𝘮 𝘰𝘯𝘭𝘺 𝘵𝘦𝘮𝘱, 𝘐 𝘰𝘯𝘭𝘺 𝘣𝘭𝘰𝘤𝘬 𝘤𝘩𝘢𝘵𝘴. 𝘐𝘧 𝘺𝘰𝘶𝘳 𝘢 𝘱𝘳𝘰/𝘥𝘢𝘳𝘬𝘴𝘩𝘪𝘱𝘱𝘦𝘳 𝘵𝘩𝘢𝘵'𝘴 𝘮𝘰𝘴𝘵 𝘭𝘪𝘬𝘦𝘭𝘺 𝘸𝘩𝘺 𝘺𝘰𝘶𝘳 𝘣𝘭𝘰𝘤𝘬𝘦𝘥.</p>
+
+###
+
+<p align="center">𝘐'𝘮 13, 𝘪𝘧 𝘵𝘩𝘢𝘵'𝘴 𝘢 𝘱𝘳𝘰𝘣𝘭𝘦𝘮 𝘧𝘰𝘳 𝘺𝘰𝘶 𝘱𝘭𝘦𝘢𝘴𝘦 𝘧𝘦𝘦𝘭 𝘧𝘳𝘦𝘦 𝘵𝘰 𝘣𝘭𝘰𝘤𝘬 𝘮𝘦 𝘐 𝘥𝘰𝘯'𝘵 𝘮𝘪𝘯𝘥 𝘢𝘵 𝘢𝘭𝘭.<br><br>𝘗𝘭𝘦𝘢𝘴𝘦 𝘥𝘰𝘯'𝘵 𝘩𝘢𝘳𝘢𝘴𝘴 𝘮𝘦 𝘰𝘷𝘦𝘳 𝘥𝘯𝘪'𝘴 𝘰𝘳 𝘥𝘪𝘧𝘧𝘦𝘳𝘦𝘯𝘵 𝘰𝘱𝘪𝘯𝘪𝘰𝘯𝘴 𝘐'𝘭𝘭 𝘱𝘳𝘰𝘣𝘢𝘣𝘭𝘺 𝘣𝘭𝘰𝘤𝘬 𝘺𝘰𝘶.</p>
+
+###
+
+<div align="center">
+  <img height="300" src="https://preview.redd.it/ive-seen-no-posts-about-queen-of-hatred-or-the-don-quixote-v0-aq6m0xl6luef1.gif?width=640&crop=smart&auto=webp&s=f1c1d7c0177f904915337903a05b7642e7ceff3e"  />
+</div>
+
+###
+
 <br clear="both">
 
 <div align="center">
-  <img height="400" src="https://i.pinimg.com/736x/8c/57/ef/8c57efd6106a19081cf882f120c27a47.jpg"  />
+  <img height="75" src="https://64.media.tumblr.com/ddfe1afd5110117ba83114837bb18d5e/f264b009c928081d-7c/s500x750/6f844ca4c12edf93d1b42bc458f100a6362be73f.pnj"  />
 </div>
-
-###
-
-<p align="left">C+H Freely idm<br><br>I'm always open 4 new friends pls js read info and ask for req<br><br>I am a minor, i'm under 16, 17+ DNI<br><br>roleplays dni please<br><br>do not copy please (minor inspo idm)<br><br>I follow cool people with my interests.... (bmf friend please ur so cool...)<br><br>block me if u want i would prefer if u would block me if u r 18+ I only block (blocked messages) proshippers<br><br>School has started for me so I will be disconnecting a lot because of my classes so sorry abt that!</p>
-
-###
-
-<div align="center">
-  <img src="https://visitor-badge.laobi.icu/badge?page_id=Morgio.Morgio&left_color=black&right_color=darkred&left_text=cool%20people"  />
-</div>
-
-###
-
-<img align="right" height="25" src="https://64.media.tumblr.com/a995968e1b0a942224d69e9cc70950b5/7edbd016635ef3d8-0e/s250x400/6b456339d33d95bcaa06e43581c058f1c8c35ee3.gifv"  />
-
-###
-
-<img align="right" height="25" src="https://64.media.tumblr.com/63b433dfef21799cfd34fef14d9057ba/4fdd7292ae378a58-5a/s250x400/14456df46c24bb45e334031a20743cf351396d42.gifv"  />
-
-###
-
-<img align="right" height="25" src="https://64.media.tumblr.com/03f3108b05829c00fa870d3712cbb6c3/150050ef62aeb4f9-b8/s250x400/e92243b3baa1b7629bc6c01cac92c10b329a96ae.gifv"  />
-
-###
-
-<img align="right" height="25" src="https://64.media.tumblr.com/d1a3023bc88c3839cb4221dc1b89882e/858fba5bea03910f-ab/s400x600/08bdceae430016f2140ea5fcfc876483fe8052b5.gifv"  />
 
 ###
