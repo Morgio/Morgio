@@ -1,16 +1,25 @@
-## Hi there 👋
+<div align="center">
+  <img height="200" src="https://64.media.tumblr.com/edb5a919ad5ae4df37aa90550bb0bd8d/0076baddc1efebbd-8c/s2048x3072/2e252f1a12fd02355c644641b941b64d445a6063.pnj"  />
+</div>
 
-<!--
-**Morgio/morgio** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+###
 
-Here are some ideas to get you started:
+<p align="center">“  𝚁𝚒𝚜𝚎, 𝚖𝚢 𝚜𝚎𝚛𝚟𝚊𝚗𝚝𝚜. 𝚁𝚒𝚜𝚎 𝚊𝚗𝚍 𝚜𝚎𝚛𝚟𝚎 𝚖𝚎.  ”</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+###
+
+<div align="center">
+  <img height="200" src="https://i.pinimg.com/736x/a5/02/c6/a502c6d40a14c0b7065e1a6e046eeed1.jpg"  />
+</div>
+
+###
+
+<p align="left">: ̗̀➛𝘏𝘪 𝘤𝘢𝘭𝘭 𝘮𝘦 𝘔𝘰𝘳𝘨𝘪𝘰 𝘰𝘳 𝘔𝘰𝘳𝘨𝘴 . 𝘚𝘩𝘦/𝘏𝘪𝘮 𝘣𝘶𝘵 𝘴𝘩𝘦/𝘩𝘦𝘳 𝘪𝘴 𝘱𝘳𝘦𝘧𝘦𝘳𝘦𝘥 𝘣𝘶𝘵 𝘐 𝘥𝘰𝘯'𝘵 𝘤𝘢𝘳𝘦 𝘸𝘩𝘢𝘵 𝘺𝘰𝘶 𝘶𝘴𝘦 (˶ˆᗜˆ˵)<br><br>: ̗̀➛𝘐 𝘥𝘰𝘯'𝘵 𝘩𝘪𝘥𝘦 𝘱𝘦𝘰𝘱𝘭𝘦 𝘱𝘦𝘳𝘮 𝘰𝘯𝘭𝘺 𝘵𝘦𝘮𝘱, 𝘐 𝘰𝘯𝘭𝘺 𝘣𝘭𝘰𝘤𝘬 𝘤𝘩𝘢𝘵𝘴. 𝘐𝘧 𝘺𝘰𝘶𝘳 𝘢 𝘱𝘳𝘰/𝘥𝘢𝘳𝘬𝘴𝘩𝘪𝘱𝘱𝘦𝘳 𝘵𝘩𝘢𝘵'𝘴 𝘮𝘰𝘴𝘵 𝘭𝘪𝘬𝘦𝘭𝘺 𝘸𝘩𝘺 𝘺𝘰𝘶𝘳 𝘣𝘭𝘰𝘤𝘬𝘦𝘥. ◝(ᵔᗜᵔ)◜<br><br>: ̗̀➛𝘐'𝘮 13, 𝘪𝘧 𝘵𝘩𝘢𝘵'𝘴 𝘢 𝘱𝘳𝘰𝘣𝘭𝘦𝘮 𝘧𝘰𝘳 𝘺𝘰𝘶 𝘱𝘭𝘦𝘢𝘴𝘦 𝘧𝘦𝘦𝘭 𝘧𝘳𝘦𝘦 𝘵𝘰 𝘣𝘭𝘰𝘤𝘬 𝘮𝘦 𝘐 𝘥𝘰𝘯'𝘵 𝘮𝘪𝘯𝘥 𝘢𝘵 𝘢𝘭𝘭. (˶˃⤙˂˶)<br><br>: ̗̀➛𝘗𝘭𝘦𝘢𝘴𝘦 𝘥𝘰𝘯'𝘵 𝘩𝘢𝘳𝘢𝘴𝘴 𝘮𝘦 𝘰𝘷𝘦𝘳 𝘥𝘯𝘪'𝘴 𝘰𝘳 𝘥𝘪𝘧𝘧𝘦𝘳𝘦𝘯𝘵 𝘰𝘱𝘪𝘯𝘪𝘰𝘯𝘴 𝘐'𝘭𝘭 𝘱𝘳𝘰𝘣𝘢𝘣𝘭𝘺 𝘣𝘭𝘰𝘤𝘬 𝘺𝘰𝘶 .·°՞(っ-ᯅ-ς)՞°·.<br><br>: ̗̀➛𝘐𝘧 𝘺𝘰𝘶 𝘮𝘢𝘬𝘦 𝘮𝘦 𝘭𝘪𝘬𝘦 𝘳𝘭𝘭𝘺 𝘶𝘯𝘤𝘰𝘮𝘧𝘺 𝘪𝘵 𝘢𝘨𝘢𝘪𝘯 𝘸𝘪𝘭𝘭 𝘮𝘰𝘴𝘵 𝘭𝘪𝘬𝘦𝘭𝘺 𝘣𝘦 𝘢 𝘣𝘭𝘰𝘤𝘬 ( ꩜ ᯅ ꩜;)⁭ ⁭<br><br>: ̗̀➛ 𝘑𝘰𝘬𝘦𝘴 𝘭𝘪𝘬𝘦 𝘩𝘪𝘵𝘭𝘦𝘳 𝘫𝘰𝘬𝘦𝘴 𝘪𝘴 𝘢 𝘢𝘯𝘰𝘵𝘩𝘦𝘳 𝘣𝘭𝘰𝘤𝘬 ( ˶°ㅁ°) !!</p>
+
+###
+
+<div align="center">
+  <img height="200" src="https://64.media.tumblr.com/f313ef6178ee7be9ec8a497d79bc68cb/0076baddc1efebbd-ee/s2048x3072/10d4389b14ce70697f26055748b70d14a7f2b54a.pnj"  />
+</div>
+
+###
