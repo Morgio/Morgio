@@ -1,8 +1,4 @@
-<div align="center">
-  <img height="200" src="https://64.media.tumblr.com/524d1b96add71d3d1543c24d01bd545c/804a182a7ca8e6a2-89/s2048x3072/cdb3a31ddefa0bb3761c76a92a13ce215105d760.pnj"  />
-</div>
 
-###
 
 <div align="center">
   <img height="200" src="https://img.playbook.com/LEh27xnPO3WOvwZ3Fy1k3Ueylpo2k08RYR8IO5O9rEA/Z3M6Ly9wbGF5Ym9v/ay1hc3NldHMtcHVi/bGljLzI5N2RmNTY1/LTg2NTktNDhmYi1i/ZmNiLWFhOTY4MTg0/NmZkZA"  />
@@ -15,12 +11,6 @@
 ###
 
 <p align="center">𝘱𝘭𝘦𝘢𝘴𝘦 𝘧𝘦𝘦𝘭 𝘧𝘳𝘦𝘦 𝘵𝘰 𝘣𝘭𝘰𝘤𝘬 𝘮𝘦 𝘐 𝘥𝘰𝘯'𝘵 𝘮𝘪𝘯𝘥 𝘢𝘵 𝘢𝘭𝘭.<br><br>𝘗𝘭𝘦𝘢𝘴𝘦 𝘥𝘰𝘯'𝘵 𝘩𝘢𝘳𝘢𝘴𝘴 𝘮𝘦 𝘰𝘷𝘦𝘳 𝘥𝘯𝘪'𝘴 𝘰𝘳 𝘥𝘪𝘧𝘧𝘦𝘳𝘦𝘯𝘵 𝘰𝘱𝘪𝘯𝘪𝘰𝘯𝘴 𝘐'𝘭𝘭 𝘱𝘳𝘰𝘣𝘢𝘣𝘭𝘺 𝘣𝘭𝘰𝘤𝘬 𝘺𝘰𝘶.</p>
-
-###
-
-<div align="center">
-  <img height="200" src="https://64.media.tumblr.com/16addfa05d4eb55bc220480c49018d9b/804a182a7ca8e6a2-35/s2048x3072/710b670fd4041c5ad2b3f938b2e5e7508c8c3a84.pnj"  />
-</div>
 
 ###
 
