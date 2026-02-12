@@ -1,5 +1,5 @@
 <p align="center">Im a minor 16+ stop trying to catch a case with me you freaks <br><br>
-btw ships dniuf</p>
+btw ships can int unless they darkships </p>
 
 
 
