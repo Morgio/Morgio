@@ -1,6 +1,6 @@
 <p>
 Dont be shy to int with me even with friends im open to making new friends <3 <br> <br>
-C+H freely unless with friends, also if I walk away if cuddled with me it was probraly because I was uncomfy <br><br>
+C+H freely unless with friends, also if I walk away if cuddled with me it was probraly because u r in my dnis or i went to a friend <br><br>
 Blocked chat = proshipper/under protree <br><br>
 Hi im making new graphics for my strawpage and readme so um there wont be much here lowkey <br><br>
 FYI I do say slurs sometimes so if u see me do js know i can reclaim those <br><br>
