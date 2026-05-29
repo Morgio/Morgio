@@ -8,3 +8,4 @@
 <p align="center"> c+h freely unless im with a friend . w2i mostly unless looking 4 chat . I dont usually int first cus im too shy <br></p>
 <p align="center"><a href="https://morgi.straw.page"> Strawpage </a></p>
 <p align="center"><a href="https://morgio.atabook.org/"> Atabook </a></p>
+<p align="center"><a href="https://en.pronouns.page/@Morgio"> pronouns </a></p>
