@@ -1,4 +1,4 @@
-<p data-importer="text" align="center">14 . c+h + int freely unless in dni . open for new friends ^A^<br><br>Im a fat chud I dont like doing html to decorate... just look at my links</p>
+<p data-importer="text" align="center">14 . c+h + int freely unless in dni . open for new friends ^A^<br><br> feel free to take inspo from any of my ponies, I dont like fully copied ponies tho </p>
 
 ###
 
