@@ -1,9 +1,9 @@
-<p data-importer="text" align="center">where u can find me when im online</p>
+<div data-importer="image" align="center">
+  <img data-importer="image" height="340" src="https://img.playbook.com/9WoSZCAKq4YyyEe0gJ8-G9RlHYqvVlrMgvaJa-KZbZA/Z3M6Ly9wbGF5Ym9v/ay1hc3NldHMtcHVi/bGljLzEwYTk4MDFk/LTg0NWUtNGM5MC1i/YWYzLTJhOTk3YjM5/YjgzOQ"  />
+</div>
 
 ###
 
-<div data-importer="image" align="center">
-  <img data-importer="image" height="500" src="https://img.playbook.com/h_cTCO0dsSJZ4g4Hn3c_ewOuErhgE3i0fs1lThLJOD0/Z3M6Ly9wbGF5Ym9v/ay1hc3NldHMtcHVi/bGljLzIzOTg2ZWE1/LWQ1YmItNGE1Yy1h/OTYxLTg0NmQwMjUz/N2VhMA"  />
-</div>
+<p data-importer="text" align="center">— ᨳଓ . Free c+h unless w party/friend<br>⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔<br>˖ ᡣ𐭩 ⊹ ࣪ feel free to ask to be moots in ata or whispers! ౨ৎ˚₊<br>𐙚⋆.˚ Warning, I never start convo first ! ʚɞ</p>
 
 ###
